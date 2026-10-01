@@ -1,0 +1,1 @@
+# Adobe-AfterEffects-2026
